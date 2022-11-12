@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Lord-Ram
-- 👀 I’m interested in c++,c,python
+- 👀 I’m interested in c++,c,python,java...
 - 🌱 I’m currently learning ...
 -  I'm a broke college student tho...... :)
 - 📫 How to reach me srirampoco@gmail.com
